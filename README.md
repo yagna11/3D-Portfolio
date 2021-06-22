@@ -15,10 +15,8 @@ step 3:
 
 Watch video: https://www.youtube.com/watch?v=6mqUlZKZDhs
 
-Additional Resources:
-https://www.youtube.com/watch?v=Q7AOvWpIVHU&t=166s
-
 Contact:
+
 LinkedIn: https://www.linkedin.com/in/yagnapatel11/]
 
 
