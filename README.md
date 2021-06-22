@@ -1,6 +1,6 @@
 # 3D-Portfolio
 
-This is a mock portfolio website built to understand and learn 3D javascript library, three.js.
+This is a mock portfolio website built to learn and understand 3D javascript library, three.js.
 
 To install: 
 
