@@ -17,6 +17,6 @@ Watch video: https://www.youtube.com/watch?v=6mqUlZKZDhs
 
 Contact:
 
-LinkedIn: https://www.linkedin.com/in/yagnapatel11/]
+LinkedIn: https://www.linkedin.com/in/yagnapatel11/
 
 
